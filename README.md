@@ -8,5 +8,8 @@ Learning on the way
 Will be good to include something about myself as suggested, so added theater plays fan status
 On top of that, Spanish Basket Team supporter in current Basket World Championship
 
+
+Just checking additional topics, playing around....
+
 Nice to be here
 Thanks all!
